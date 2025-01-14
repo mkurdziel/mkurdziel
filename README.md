@@ -1,4 +1,4 @@
-Cloud Lead at [Point One Navigation](https://pointonenav.com)
+Engineering Director at [Point One Navigation](https://pointonenav.com)
 
 Formerly: Hightail, Adept Cloud, JDSU, Agilent Technologies
 
